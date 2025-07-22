@@ -24,7 +24,7 @@ This app does not knowingly collect personal information from children under the
 ## Contact Us
 
 If you have any questions about this Privacy Policy, feel free to contact us at:  
-📧 **zoomilatech@gmail.com**
+📧 **boytopper95@gmail.com**
 
 ---
 
